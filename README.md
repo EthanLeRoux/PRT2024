@@ -5,7 +5,7 @@
 **Collaborators:**
   Ethan Le Roux
   Nathan Antha
-  Bruneez Apollis
+  Bruneez Apollis 222127600
   Qhama Dyushu
   Luyanda Makhanya 222788291
   Nomusa Mathonsi
